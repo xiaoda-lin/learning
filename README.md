@@ -1,1 +1,1 @@
-# learning makes me tired but also makeds me happy
+# learning makes me tired and makeds me happy
